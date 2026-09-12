@@ -1,2 +1,2 @@
 My Coursera Certificates
-[Coursera Certificate: Resume Writing (Grade: 76%)](https://coursera.org/verify/59PL03ZNEA5B)
+[Google AI](https://coursera.org/verify/professional-cert/D5DLFRS45Y30)
